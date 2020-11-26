@@ -1,0 +1,1 @@
+This is the most secret recipe of the most majestic **Krabby Patty**(BURGER) featured in official _Spongebob Squarepants_ series..
